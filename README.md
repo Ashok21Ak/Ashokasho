@@ -1,2 +1,0 @@
-# Ashokasho
-Developed by Ashok
